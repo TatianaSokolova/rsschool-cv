@@ -1,1 +1,1 @@
-# rsschool-cv
+https://tatianasokolova.github.io/rsschool-cv/cv
